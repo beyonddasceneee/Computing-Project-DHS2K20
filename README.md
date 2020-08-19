@@ -5,15 +5,25 @@ For Chers :D
 
 *INTRODUCTION AND PURPOSE*
 
+
+
 Im Ruihan and im from DHS 2020Y1C
 This is the place where I do the computing stuff for the chers
+
+
 My hobbies are:
+
 Reading
+
+Writing
+
+Playing games
 
 
 
 GENERAL IDEAS:
-   Horror story
+  
+  Horror story
    
    
    
