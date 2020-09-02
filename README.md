@@ -1,5 +1,6 @@
 # *Computing-Project-DHS2K20*
 _1C peoples lets base the song on rick astley_
+Or we could do a story(horror?)
 For Chers :D
 
 
