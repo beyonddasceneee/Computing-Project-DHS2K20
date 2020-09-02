@@ -3,9 +3,6 @@
 
 
 
-I am Ruihan and I am from DHS 2020Y1C
-
-
 
 GENERAL IDEAS:
   
