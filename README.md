@@ -8,7 +8,7 @@ For Chers :D
 
 
 
-Im Ruihan and im from DHS 2020Y1C
+I am Ruihan and I am from DHS 2020Y1C
 This is the place where I do the computing stuff for the chers
 
 
