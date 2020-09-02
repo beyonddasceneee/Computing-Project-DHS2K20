@@ -35,4 +35,4 @@ Thenks :)
 
 Also you can give me some suggestions on which idea is better to adopt.
 
-(Also which chers yall wanna be talking abt) You can commentg some suggestions!
+(Also which chers yall want to be talking abt) You can comment some suggestions down below!
