@@ -32,4 +32,10 @@ THE COLLECTOR
   
   When I awoke, I was lying in a hospital bed, with thick bandages wrapped around my jaw. Padma and Ms Lim stood over me, a concerned look on their faces. "Well, the collector didnt manage to get your eNtiRe mouth off..." Padma said. " Ms Lim distracted it long enough so it became dawn before it could do so. She called the cops and I pushed you out of the air duct." I grabbed my bandages and started to pull. I took a nearby mirror and looked at my face. I saw long stitch marks around my lips, holding my mouth together. That day, I decided never to ever get into commitments i  coudnt fulfil.
   
-  I guess i'll be safe. For another year.
+  I guess i'll be safe. For another year. 
+  
+  
+  
+  
+  
+  If you have any other suggestions, you may edit the story and please write down what you edited to make it easier for everyone! :D
